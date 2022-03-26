@@ -1,2 +1,0 @@
-# putinloh.github.io
-qa
